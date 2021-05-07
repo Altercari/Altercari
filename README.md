@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Altercari
+- 👀 I’m interested in shared knowledge.
+- 🌱 I’m currently learning about, well, Github
+- 💞️ I’m looking to collaborate on wikis, archives & databases.
+- 📫 @ me
